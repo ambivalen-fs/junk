@@ -1,1 +1,1 @@
-Subtitle anime Girl Gaku -Hijiri Girl Square Gakuin-
+Takarir anime Girl Gaku -Hijiri Girl Square Gakuin-
