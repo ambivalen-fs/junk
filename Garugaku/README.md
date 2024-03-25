@@ -1,1 +1,1 @@
-Takarir anime Girl Gaku -Hijiri Girl Square Gakuin-
+Takarir anime Ookami to Koushinryou: Merchant Meets the Wise Wolf (Spice and Wolf: Merchant Meets the Wise Wolf)
